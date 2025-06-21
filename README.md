@@ -4,3 +4,5 @@ bfsudka
 mfedspa
 mfcdsneiakplo
 ncdskal\
+bsuka
+nfeqo
